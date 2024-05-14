@@ -1,4 +1,4 @@
-BOT SLEEPING PROBLEM FIXED
+𝘽𝙊𝙏 𝙒𝙊𝙍𝙆𝙄𝙉𝙂
 
 
 
@@ -14,7 +14,7 @@ BOT SLEEPING PROBLEM FIXED
 	  
 </p>
 </a>
-<h1 align="center"><b>HEY I AM KING IBRAHIM</b><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
+<h1 align="center"><b>𝙃𝙀𝙔 𝙄 𝘼𝙈 𝘾𝘼𝙇𝙀𝘽𝙆𝙄𝙉𝙂</b><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
 
 
 <p align="center">
@@ -22,9 +22,9 @@ BOT SLEEPING PROBLEM FIXED
 </p>
                        
   <a href="https://ibb.co/N6NMDtn"><img src="https://telegra.ph/file/963f9c4a41319399f90be.jpg" alt="01" border="0" /></a>                     
-  𝗢𝗪𝗡𝗘𝗥 𝗡𝗔𝗠𝗘 : 𝗜𝗕𝗥𝗔𝗛𝗜𝗠 𝗡𝗚𝗢𝗬𝗔
+  𝗢𝗪𝗡𝗘𝗥 𝗡𝗔𝗠𝗘 : 𝘾𝘼𝙇𝙀𝘽𝙆𝙄𝙉𝙂
                        
- 𝗢𝗪𝗡𝗘𝗥 𝗡𝗨𝗠𝗕𝗘𝗥 : +25410772666
+ 𝗢𝗪𝗡𝗘𝗥 𝗡𝗨𝗠𝗕𝗘𝗥 : +254794592249
                        
   𝗠𝗔𝗗𝗘 𝗜𝗡 𝗞𝗘𝗡𝗬𝗔😂🇰🇪😂🤣 
   
